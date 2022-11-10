@@ -1,1 +1,0 @@
-# JLWrightNottsCol.github.io
